@@ -1,1 +1,1 @@
-![jwgamble](https://user-images.githubusercontent.com/56866288/163164621-100c4aeb-e27b-4c86-b937-a3349da37e2f.gif)
+![bad-boy-juice-wrld](https://user-images.githubusercontent.com/56866288/163165058-016e3baa-3536-4c0f-81a1-348bf5d67146.gif)
